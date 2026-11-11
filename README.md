@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Ayush Mishra
-**A passionate Python Developer | Machine Learning Enthusiast**
+**A passionate Python Developer | AI/ML Engineer**
 
 Email Me  ✉️ **officialayushmishra002@gmail.com** For Collaboration/Project or Anything Else. 
 
